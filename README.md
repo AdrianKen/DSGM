@@ -14,6 +14,8 @@
 2. PT. Riau Andalan Pulp and Paper (Logistic Planner)
 
 # Skills
-- Administration Skills
-- Analytic Skills
 - Microsoft Office Skills
+- Fluent in both Indonesian and English
+- Experience with ERP system(s)
+- Team player
+- Convincing, pro-active and “can do” mentality
