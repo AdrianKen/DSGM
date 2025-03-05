@@ -1,5 +1,7 @@
 # Adrian Ken
 
+![](Photo of Adrianus Sebastian Kenneth)
+
 # Education
 - Bachalor Degree: Industrial Engineering (Parahyangan Catholic University)
 - Master Degree: Global Master of Business Administration (Tunghai University)
