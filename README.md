@@ -1,6 +1,6 @@
 # Adrian Ken
 
-![](Photo of Adrianus Sebastian Kenneth)
+![](Photo of Adrianus Sebastian Kenneth.jpeg)
 
 # Education
 - Bachalor Degree: Industrial Engineering (Parahyangan Catholic University)
